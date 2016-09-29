@@ -33,5 +33,9 @@ III. Print CSS
     
     Laser printers also print type/text better than inkjet printers but it doesn't really change the message of creative motivation 
     the strategies aim to get across. So no worries.
+    
+Resources Link:
+
+http://linkis.com/yeun.github.io/1vIYf
 
     
